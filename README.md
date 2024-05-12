@@ -1,6 +1,10 @@
 ## 跑路机场梯子VPN翻墙软件统计 - 推荐使用DOVE加速器： [进入官网 - 点击注册](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
 
 
+<!-- wp:table -->
+<figure class="wp-block-table"><table><tbody><tr><td><strong>加速器名称</strong></td><td><strong>产品优势</strong></td><td><strong>免费试用</strong></td><td><strong>官网地址</strong></td></tr><tr><td><strong><a href="https://tgjkdjfk.top/a.php?amawx2CyMVa2" target="_blank" rel="noreferrer noopener">DOVE加速器</a></strong></td><td>新手必备一键连接，最稳定的上外网工具</td><td>注册账户，即可试用4小时</td><td><strong><a href="https://tgjkdjfk.top/a.php?amawx2CyMVa2" target="_blank" rel="noreferrer noopener">点击注册</a></strong></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr><tr><td></td><td></td><td></td><td></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
 ## 2022年11月TLY VPN（beecloud）跑路了：
 <!-- wp:paragraph -->
 <p><em>PandaVPN</em>跑路了？<em>PandaVPN</em>不能用了？<em>PandaVPN</em>最新官网打不开了？<em>PandaVPN</em>平替代机场梯子</p>
