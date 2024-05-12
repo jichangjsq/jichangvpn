@@ -29,7 +29,7 @@
 <!-- /wp:table -->
 
 <!-- wp:paragraph -->
-<p>Sockboom这款梯子机场VPN翻墙软件最近节点全红，Sockboom机场的官网也打开了。Sockboom加速器大概率跑路了。</p>
+<p>Sockboom这款梯子机场VPN翻墙软件在2024年2月官网突然打不开，节点全红，Sockboom机场的客户端也无法登录了。Sockboom加速器大概率跑路了。</p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
