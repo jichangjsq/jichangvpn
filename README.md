@@ -1,4 +1,4 @@
-## 跑路机场梯子VPN翻墙软件统计 - 推荐使用DOVE加速器：点击注册，免费试用
+## 跑路机场梯子VPN翻墙软件统计 - 推荐使用DOVE加速器： [进入官网 - 点击注册](https://tgjkdjfk.top/a.php?asbcbO1PCgF)
 
 
 ## 2022年11月TLY VPN（beecloud）跑路了：
