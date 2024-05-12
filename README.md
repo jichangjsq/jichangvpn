@@ -41,6 +41,34 @@
 <!-- /wp:paragraph -->
 
 
+## 2024年4月自由鲸Freewhale跑路了：
+
+<!-- wp:paragraph -->
+<p>freewhale自由鲸（心阶云XinjieCloud 心阶）跑路了？freewhale自由鲸（心阶云XinjieCloud 心阶）不能用了？freewhale自由鲸（心阶云XinjieCloud 心阶）最新官网打不开了？freewhale自由鲸平替代机场梯子</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table><tbody><tr><td><strong>加速器名称</strong></td><td><strong>产品优势</strong></td><td><strong>免费试用</strong></td><td><strong>官网地址</strong></td></tr><tr><td><strong><a href="https://tgjkdjfk.top/a.php?amawx2CyMVa2" target="_blank" rel="noreferrer noopener">DOVE加速器</a></strong></td><td>新手必备一键连接，最稳定的上外网工具</td><td>注册账户，即可试用4小时</td><td><strong><a href="https://tgjkdjfk.top/a.php?amawx2CyMVa2" target="_blank" rel="noreferrer noopener">点击注册</a></strong></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:paragraph -->
+<p>freewhale自由鲸这款梯子机场VPN翻墙软件最近节点全红，freewhale自由鲸机场的官网也打开了，freewhale自由鲸加速器大概率跑路了。</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>freewhale自由鲸机场原名樱花互联，后改名为心阶云，最近1年改名为自由鲸，算是一款经营多年的老款机场梯子。在3月底的时候，自由鲸的节点就断流厉害。到了4月付，自由鲸的TG群组也解散了，自由鲸的官网也上不去了，自由鲸也没有公布最新官网。</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>freewhale自由鲸这款梯子机场算是一款老牌VPN翻墙软件了，运用了7，8年时间。运营以来至少累积了数万付费用户，突如其来的跑路，导致大量使用高速稳定的VPN翻墙用户无法使用。</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>freewhale自由鲸机场不能用了，为此我们给大家推荐另一款高速稳定好用的机场梯子VPN翻墙软件，海外团队运营的产品 –&nbsp;DOVE加速器，因为是海外团队运营的品牌，所以不用担心跑路风险。</p>
+<!-- /wp:paragraph -->
+
+
+
 ## 2024年5月冲浪猫跑路了：
 <!-- wp:paragraph -->
 <p>冲浪猫跑路了？冲浪猫不能用了？冲浪猫最新官网打不开了？冲浪猫平替代机场梯子VPN翻墙软件</p>
