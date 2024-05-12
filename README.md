@@ -52,7 +52,7 @@
 <!-- /wp:table -->
 
 <!-- wp:paragraph -->
-<p>freewhale自由鲸这款梯子机场VPN翻墙软件最近节点全红，freewhale自由鲸机场的官网也打开了，freewhale自由鲸加速器大概率跑路了。</p>
+<p>freewhale自由鲸这款梯子机场VPN翻墙软件在4月份跑路了，一开始freewhale自由鲸机场的官网无法打开，后面全部节点也无法使用了，自由鲸的TG群组也被解散了，自由鲸加速器大概率是跑路了。</p>
 <!-- /wp:paragraph -->
 
 <!-- wp:paragraph -->
