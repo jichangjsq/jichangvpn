@@ -1,6 +1,6 @@
-## 2023年10月TLY VPN跑路了：
+## 2023年10月TLY VPN（beecloud）跑路了：
 <!-- wp:paragraph -->
-<p>冲浪猫跑路了？冲浪猫不能用了？冲浪猫最新官网打不开了？</p>
+<p>TLY VPN（beecloud）跑路了？TLY VPN（beecloud）不能用了？TLY VPN（beecloud）最新官网打不开了？TLY VPN（beecloud）平替代机场梯子VPN翻墙软件</p>
 <!-- /wp:paragraph -->
 
 <!-- wp:table -->
@@ -21,7 +21,7 @@
 
 ## 2024年5月冲浪猫跑路了：
 <!-- wp:paragraph -->
-<p>冲浪猫跑路了？冲浪猫不能用了？冲浪猫最新官网打不开了？</p>
+<p>冲浪猫跑路了？冲浪猫不能用了？冲浪猫最新官网打不开了？冲浪猫平替代机场梯子VPN翻墙软件</p>
 <!-- /wp:paragraph -->
 
 <!-- wp:table -->
