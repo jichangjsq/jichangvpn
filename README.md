@@ -40,6 +40,28 @@
 <p>Sockboom机场不能用了，为此我们给大家推荐另一款高速稳定好用的机场梯子VPN翻墙软件，海外团队运营的产品 -&nbsp;DOVE加速器，因为是海外团队运营的品牌，所以不用担心跑路风险。</p>
 <!-- /wp:paragraph -->
 
+## 2024年4月boomcloud机场跑路了：
+
+<!-- wp:paragraph -->
+<p>boomcloud机场跑路了？boomcloud机场不能用了？boomcloud机场最新官网打不开了？boomcloud平替代机场梯子</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table><tbody><tr><td><strong>加速器名称</strong></td><td><strong>产品优势</strong></td><td><strong>免费试用</strong></td><td><strong>官网地址</strong></td></tr><tr><td><strong><a href="https://tgjkdjfk.top/a.php?amawx2CyMVa2" target="_blank" rel="noreferrer noopener">DOVE加速器</a></strong></td><td>新手必备一键连接，最稳定的上外网工具</td><td>注册账户，即可试用4小时</td><td><strong><a href="https://tgjkdjfk.top/a.php?amawx2CyMVa2" target="_blank" rel="noreferrer noopener">点击注册</a></strong></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:paragraph -->
+<p>boomcloud这款梯子机场在4月份clash客户端无法登陆，其付款后服务不开通；节点一直无法使用，客户端也上不去了。种种迹象表明boomcloud应该是跑路了，boomcloud最新官网也没有发布。</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>boomcloud这款梯子机场软件，算是一款老品牌梯子了，有很多boomcloud的真实用户，在2024年4月boomcloud的官网无法打不开，也没有公布boomcloud最新官网，之后boomcloud机场梯子就一直无法正常使用了。</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>boomcloud这款梯子机场算是一款老牌VPN翻墙软件了，运用了几年时间。运营以来至少累积了数万付费用户，突如其来的跑路，导致大量使用高速稳定的VPN翻墙用户无法使用。</p>
+<!-- /wp:paragraph -->
+
 
 ## 2024年4月自由鲸Freewhale跑路了：
 
