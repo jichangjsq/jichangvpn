@@ -109,6 +109,26 @@
 <!-- /wp:paragraph -->
 
 
+## 2024年4月Nirvana 萌喵加速机场跑路了：
+
+<!-- wp:paragraph -->
+<p>Nirvana 萌喵加速机场跑路了？Nirvana 萌喵加速机场不能用了？Nirvana 萌喵加速机场最新官网打不开了？Nirvana 萌喵加速机场平替代机场梯子</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:table -->
+<figure class="wp-block-table"><table><tbody><tr><td><strong>加速器名称</strong></td><td><strong>产品优势</strong></td><td><strong>免费试用</strong></td><td><strong>官网地址</strong></td></tr><tr><td><strong><a href="https://tgjkdjfk.top/a.php?amawx2CyMVa2" target="_blank" rel="noreferrer noopener">DOVE加速器</a></strong></td><td>新手必备一键连接，最稳定的上外网工具</td><td>注册账户，即可试用4小时</td><td><strong><a href="https://tgjkdjfk.top/a.php?amawx2CyMVa2" target="_blank" rel="noreferrer noopener">点击注册</a></strong></td></tr></tbody></table></figure>
+<!-- /wp:table -->
+
+<!-- wp:paragraph -->
+<p>Nirvana 萌喵加速机场这款梯子机场是boomcloud的分站，boomcloud在4月份clash客户端无法登陆，其付款后服务不开通；节点一直无法使用，客户端也上不去了。其后Nirvana 萌喵加速机场的官网也打不开了，在线客服也联系不上。种种迹象表明Nirvana 萌喵加速机场应该是跑路了，Nirvana 萌喵加速机场最新官网也没有发布。</p>
+<!-- /wp:paragraph -->
+
+<!-- wp:paragraph -->
+<p>Nirvana 萌喵加速机场这款梯子机场软件，算是一款老品牌的机场梯子VPN软件了，在Nirvana 萌喵加速机场跑路后，Nirvana 萌喵加速机场机场软件也无法正常使用，对于需要使用高速稳定的机场软件的用户，非常影响其工作和学习。所以我们推荐大家使用其他机场梯子软- DOVE加速器</p>
+<!-- /wp:paragraph -->
+
+
+
 ## 2024年4月自由鲸Freewhale跑路了：
 
 <!-- wp:paragraph -->
